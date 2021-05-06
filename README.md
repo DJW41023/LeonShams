@@ -1,6 +1,5 @@
 ### Hi there 👋
 
-- 📫 How to reach me: There is a contact form on my personal website https://leonshams.me/contact.html
 - 😄 Pronouns: He/Him
 - ⚡ Fun fact: I like to play chess
 
